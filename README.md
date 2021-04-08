@@ -1,4 +1,4 @@
-# Stanford-MURA
+# Stanford-MURA 🦴🦴🦴🦴
 
 ## Introduction
 
